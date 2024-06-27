@@ -1,2 +1,1 @@
-
-![image](https://github.com/NeXTRhapsody/.github/assets/114437933/4c695a0f-6ef6-4c86-a253-f726b455e431)
+![image](https://github.com/NeXTRhapsody/.github/assets/114437933/e6f3f5af-e8b0-442e-a86d-70f74419034b)
